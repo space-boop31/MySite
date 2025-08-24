@@ -14,7 +14,7 @@ Built with intention using:
 ## Glimpse
 Interested in collaboration or conversation?
 
-[LinkedIn](https://linkedin.com/in/vinayak-kumar-381622210) | [GitHub](https://github.com/Vins-z)
+[LinkedIn](https://www.linkedin.com/in/arpita--srivastava/) | [GitHub](https://github.com/space-boop31)
 
 ---
-*Vinayak Kumar, 2024*
+*Arpita Srivastava, 2025*
